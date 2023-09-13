@@ -36,4 +36,4 @@ Give credit here.
 
 
 ## Contact
-Created by @PriyaVMN and  - feel free to contact me!
+Created by @PriyaVMN and Ramkumar- feel free to contact me!
